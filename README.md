@@ -1,2 +1,2 @@
 # pt.2510010104
-pake chat gpt karena erro
+pake chat gpt karena error
